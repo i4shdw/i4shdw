@@ -22,7 +22,7 @@ i recommend not going there because is an absolute hellhole
 </ul>
 <h1>⮆ interests</h1>
 <ul>
-	<li><a href="https://twitter.com/HamsterFragment" target="_blank">hamsterfragment</a></li>
+	<li><a href="https://twitter.com/HamsterFragment" target="_blank">hamsterfragment</a> (do not view if you are sensitive to suicide)</li>
 	<li>morbid topics</li>
 	<li>seaside dispatches</li>
 </ul>
