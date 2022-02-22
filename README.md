@@ -17,7 +17,7 @@ i recommend not going there bc is an absolute hellhole
 </ul>
 <h1>★ dni</h1>
 <ul>
-	<li>sensitive people (you will not enjoy the way i act + i am very bad around sensitive people&nbsp;</li>
+	<li>sensitive people (you will not enjoy the way i act + i am very bad around sensitive people)&nbsp;</li>
 	<li>idrc what fandoms you are in as long as you arent an ass</li>
 </ul>
 <h1>☆ interests</h1>
