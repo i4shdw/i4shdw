@@ -1,30 +1,32 @@
-<h2><img src="https://pbs.twimg.com/profile_banners/708107801407594501/1574684873/1500x500" alt="Image"></h2>
-<h3>this bio is for&nbsp;<a href="https://pony.town/" target="_blank"><em>ponytown</em></a></h3>
-i recommend not going there because is an absolute hellhole
+![image](https://user-images.githubusercontent.com/93667509/155066840-465c22e0-37f9-4dca-8bf4-988c1b7d1a94.png)
+<h3>this bio is for<a href="https://pony.town/" target="_blank">&nbsp;ponytown</a></h3>
+i recommend not going there bc is an absolute hellhole
 <br>
-<h1></h1>
-<h1>⇅ info</h1>
+<br>
+<h1>★ info</h1>
 <ul>
 	<li>i go by kaz or kazumi</li>
 	<li>any pronouns</li>
 	<li>asian</li>
 </ul>
-<h1>⇆ byi</h1>
+<h1>☆ byi</h1>
 <ul>
-	<li>i mostly will not interact with you unless if you're my friends and except if you're asking me a question or if interact with you first</li>
+	<li>i probably wont interact with you unless if i interact with you first (friends excluded)</li>
 	<li>i am offtab 99% everyday so interact with me in whispers</li>
-	<li>sometimes i make a lot of offensive jokes</li>
+	<li>i use "bro" and "dude" in a gender neutral way</li>
 </ul>
-<h1>⥥ dni</h1>
+<h1>★ dni</h1>
 <ul>
-	<li>sensitive people&nbsp;<strong><em>you will not enjoy the way i act + im very terrible around sensitive people</em></strong></li>
-	<li>you are on thin ice if you're in the danganronpa fandom</li>
+	<li>sensitive people (you will not enjoy the way i act + i am very bad around sensitive people&nbsp;</li>
+	<li>idrc what fandoms you are in as long as you arent an ass</li>
 </ul>
-<h1>⮆ interests</h1>
+<h1>☆ interests</h1>
 <ul>
-	<li><a href="https://twitter.com/HamsterFragment" target="_blank">hamsterfragment</a> (do not view if you are sensitive to suicide)</li>
+	<li>nebulamancers</li>
+	<li>baking</li>
 	<li>morbid topics</li>
-	<li>seaside dispatches</li>
 </ul>
-<ul>
+<h1>(´ ˘ `)&nbsp;♡</h1>
+<ul style="">
+	<li>plum, kenny, kuki, rau, koby, toffi, reiyu, hoshi, & shoyo</li>
 </ul>
