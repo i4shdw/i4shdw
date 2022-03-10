@@ -1,5 +1,4 @@
-![image](https://user-images.githubusercontent.com/93667509/157595106-82142aae-f379-4329-b507-90e82e26c3c2.png)
-
+![image](https://user-images.githubusercontent.com/93667509/157596260-bb53b01d-24f0-4a90-86d1-4c574c819ec9.png)
 <em>this bio is for&nbsp;</em><a href="https://pony.town/" target="_blank">ponytown</a><em>.</em></h3>
 <h1>★ info</h1>
 <ul>
