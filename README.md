@@ -1,32 +1,32 @@
-![image](https://user-images.githubusercontent.com/93667509/155066840-465c22e0-37f9-4dca-8bf4-988c1b7d1a94.png)
-<h3>this bio is for<a href="https://pony.town/" target="_blank">&nbsp;ponytown</a></h3>
-i recommend not going there bc is an absolute hellhole
-<br>
-<br>
+![image](https://user-images.githubusercontent.com/93667509/157595106-82142aae-f379-4329-b507-90e82e26c3c2.png)
+
+<em>this bio is for&nbsp;</em><a href="https://pony.town/" target="_blank">ponytown</a><em>.</em></h3>
 <h1>★ info</h1>
 <ul>
-	<li>i go by kaz or kazumi</li>
+	<li>i go by rotten, & kazumi, but you can call me rot or kaz</li>
 	<li>any pronouns</li>
+	<li>ponytown collector</li>
 	<li>asian</li>
 </ul>
 <h1>☆ byi</h1>
 <ul>
-	<li>i probably wont interact with you unless if i interact with you first (friends excluded)</li>
-	<li>i am offtab 99% everyday so interact with me in whispers</li>
-	<li>i use "bro" and "dude" in a gender neutral way</li>
+	<li>i wont interact with you unless i interact with you first (friends excluded)</li>
+	<li>im offtab almost every single day, so if u wanna ask me sumn do it in whispers</li>
+	<li>i use bro and dude in a gender-neutral way</li>
 </ul>
 <h1>★ dni</h1>
 <ul>
-	<li>sensitive people (you will not enjoy the way i act + i am very bad around sensitive people)&nbsp;</li>
-	<li>idrc what fandoms you are in as long as you arent an ass</li>
+	<li>sensitive people/snowflakes</li>
+	<li>idc what fandoms you're in as long as u arent annoying</li>
 </ul>
 <h1>☆ interests</h1>
 <ul>
-	<li>nebulamancers</li>
-	<li>baking</li>
+	<li>jujutsu kaisen</li>
+	<li>friday night funkin'</li>
 	<li>morbid topics</li>
 </ul>
-<h1>(´ ˘ `)&nbsp;♡</h1>
-<ul style="">
+<h1>♡</h1>
+<ul>
 	<li>plum, kenny, kuki, rau, koby, toffi, reiyu, hoshi, & shoyo</li>
+</ul>
 </ul>
