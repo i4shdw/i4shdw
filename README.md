@@ -26,6 +26,6 @@
 </ul>
 <h1>♡</h1>
 <ul>
-	<li>plum, kenny, kuki, rau, koby, toffi, reiyu, hoshi, & shoyo</li>
+	<li>plum, kenny, kuki, rau, agra, toffi, reiyu, hoshi, & shoyo</li>
 </ul>
 </ul>
