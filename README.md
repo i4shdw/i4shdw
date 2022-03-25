@@ -1,3 +1,4 @@
+![image](https://user-images.githubusercontent.com/93667509/160165893-081794e2-a72f-45d7-a8b9-5a833317c6ae.png)
 <em>this bio is for&nbsp;</em><a href="https://pony.town/" target="_blank">ponytown</a><em>.</em>
 <h1>★ info</h1>
 <ul>
