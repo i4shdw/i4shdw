@@ -1,39 +1,36 @@
-![image](https://user-images.githubusercontent.com/93667509/160165893-081794e2-a72f-45d7-a8b9-5a833317c6ae.png)
-<em>this bio is for&nbsp;</em><a href="https://pony.town/" target="_blank">ponytown</a><em>.</em>
-<h1>★ info</h1>
+![image](https://user-images.githubusercontent.com/93667509/160171872-0eed554a-b560-4788-8f97-a4cdbd9f8b53.png)
+
+🚎 vomit / kaz<br>
+any prns aquarius intj<br>
+unlabeled asian<br>
+<br>
 <ul>
-	<li>i go by vomit or vot</li>
-	<li>any pronouns</li>
-	<li>ponytown collector</li>
-	<li>asian</li>
+	<li>byi</li>
 </ul>
-<h1>☆ byi</h1>
+<div style="margin-left: 20px;">
+	i wont interact with u unless i interact w u first (friends excluded)<br>
+	im very offtab every single day<br>
+	i use 'bro' and 'dude' in a gender neutral way<br>
+	<br>
+</div>
 <ul>
-	<li>i wont interact with you unless i interact with you first (friends excluded)</li>
-	<li>im offtab almost every single day, so if u wanna ask me sumn do it in whispers</li>
-	<li>i use bro and dude in a gender-neutral way</li>
+	<li>dni</li>
 </ul>
-<h1>★ dni</h1>
+<div style="margin-left: 20px;">
+	sensitive people<br>
+	if your typing quirk is overly complicated<br>
+	idc what fandom ur in as long as u arent annoying<br>
+	<br>
+</div>
 <ul>
-	<li>sensitive people/snowflakes</li>
-	<li>idc what fandoms you're in as long as u arent annoying</li>
-	<li>yttd, danganronpa, encanto, & cr fans r on thin ice</li>
+	<li>kins</li>
 </ul>
-<h1>☆ interests</h1>
-<ul>
-	<li>jujutsu kaisen</li>
-	<li>friday night funkin'</li>
-	<li>morbid topics</li>
-</ul>
-<h1>★ kins (dont ask)</h1>
-<ul>
-	<li>nicole (class t1t5)</li>
-	<li>hanten (obsolete dream)</li>
-	<li>mk (monkie kid)</li>
-	<li>alele grora (the gray garden)</li>
-	<li>victor flankenstein (seaside dispatches 2)</li>
-</ul>
-<h1>♡</h1>
-<ul>
-	<li>plum, kenny, kuki, rau, agra, toffi, reiyu, hoshi, & shoyo</li>
-</ul>
+<div style="margin-left: 20px;">
+	nicole (class t1t5)<br>
+	mk (monkie kid)<br>
+	hanten (obsolete dream)<br>
+</div>
+<div style="margin-left: 20px;">
+</div>
+<div style="margin-left: 20px;">
+</div>
