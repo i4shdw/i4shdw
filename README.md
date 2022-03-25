@@ -1,8 +1,7 @@
-![image](https://user-images.githubusercontent.com/93667509/157596260-bb53b01d-24f0-4a90-86d1-4c574c819ec9.png)
-<em>this bio is for&nbsp;</em><a href="https://pony.town/" target="_blank">ponytown</a><em>.</em></h3>
+<em>this bio is for&nbsp;</em><a href="https://pony.town/" target="_blank">ponytown</a><em>.</em>
 <h1>★ info</h1>
 <ul>
-	<li>i go by rotten, & kazumi, but you can call me rot or kaz</li>
+	<li>i go by vomit or vot</li>
 	<li>any pronouns</li>
 	<li>ponytown collector</li>
 	<li>asian</li>
@@ -17,6 +16,7 @@
 <ul>
 	<li>sensitive people/snowflakes</li>
 	<li>idc what fandoms you're in as long as u arent annoying</li>
+	<li>yttd, danganronpa, encanto, & cr fans r on thin ice</li>
 </ul>
 <h1>☆ interests</h1>
 <ul>
@@ -24,8 +24,15 @@
 	<li>friday night funkin'</li>
 	<li>morbid topics</li>
 </ul>
+<h1>★ kins (dont ask)</h1>
+<ul>
+	<li>nicole (class t1t5)</li>
+	<li>hanten (obsolete dream)</li>
+	<li>mk (monkie kid)</li>
+	<li>alele grora (the gray garden)</li>
+	<li>victor flankenstein (seaside dispatches 2)</li>
+</ul>
 <h1>♡</h1>
 <ul>
 	<li>plum, kenny, kuki, rau, agra, toffi, reiyu, hoshi, & shoyo</li>
-</ul>
 </ul>
