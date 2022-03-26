@@ -1,6 +1,6 @@
 ![image](https://user-images.githubusercontent.com/93667509/160171872-0eed554a-b560-4788-8f97-a4cdbd9f8b53.png)
 
-vomit / vot / kaz (only my friends can refer me w that name)<br>
+vomit / vot / friends may call me kaz<br>
 any prns aquarius intj<br>
 unlabeled asian<br>
 <br>
