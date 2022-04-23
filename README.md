@@ -1,5 +1,5 @@
 🎤💿&nbsp;glorpse / kaz&nbsp;<br>
-unlabeled nd asian muslim 🎧 intj aquarius
+unlabeled nd indonesian muslim 🎧 intj aquarius
 <br>
 <br>
 ˖⁺ ponytown collector & skin designer&nbsp;🎙️
