@@ -1,4 +1,4 @@
-⛩️📿&nbsp;glorpse / kaz&nbsp;<br>
+⛩️📿&nbsp;nezha / kaz&nbsp;<br>
 unlabeled nd indonesian muslim 🏮 intj aquarius
 <br>
 <br>
